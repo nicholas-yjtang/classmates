@@ -359,15 +359,15 @@ Cue the applause!
 
 ![attachments/518408196_10161034500576688_7224298439560074168_n.jpg](attachments/518408196_10161034500576688_7224298439560074168_n.jpg)
 
-Popping the [champagne](https://www.youtube.com/watch?v=tI-5uv4wryI)! 
+Popping the [champagne](https://www.youtube.com/shorts/NWWO6Fp_TsM)! 
 
 No waiters were hurt during this exercise
 
 ![attachments/518314188_10161034500151688_3232725924558473642_n.jpg](attachments/518314188_10161034500151688_3232725924558473642_n.jpg)
 
-Oh more dry ice/mysterious mist. 
+Oh more dry ice/mysterious [mist](https://www.youtube.com/shorts/QhDz_B0ULC0). 
 
-Wonder if the [champagne](https://www.youtube.com/shorts/8x2wguBmGgA) gets wasted on the bottom glasses
+Wonder if the champagne gets wasted on the bottom glasses
 ## Thanks
 
 Did you say thank you?
@@ -384,7 +384,7 @@ Personally I always zone out here. Pretty sure I did!
 
 A more serious thank you speech. 
 
-Looks like [Thomas](https://www.youtube.com/@thomasandfriends) is here too.
+Looks like [Thomas](https://www.youtube.com/shorts/TYav5EugIY4) is here too.
 
 ## Final hurrah
 
