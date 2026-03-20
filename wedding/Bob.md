@@ -102,9 +102,9 @@ Macho back shot
 
 I suppose the "house" was room 1406. 
 
-As per tradition, the red umbrella is supposed to ward away negative elements. I wonder if it can ward away negative people too
+As per tradition, the red [umbrella](https://www.youtube.com/shorts/trR1hVurBPw) is supposed to ward away negative elements. I wonder if it can ward away negative people too
 
-Negative elements [begone](https://www.youtube.com/shorts/trR1hVurBPw)!
+Negative elements [begone](https://www.youtube.com/shorts/F2rs-YLxU_w)!
 
 ![attachments/517657646_10161034447191688_5196589127395183904_n.jpg](attachments/517657646_10161034447191688_5196589127395183904_n.jpg)
 
@@ -190,6 +190,8 @@ Well I don't know what's actually inside, and obviously none of us can see it ei
 
 There's some talk that the tradition is the groom prepares glutinous rice ball, the bride prepares hard boiled egg with mian sian. 
 
+Anyway most traditions get watered or modified in subsequent generations, so I doubt it matters
+
 ![attachments/518339012_10161034456021688_5197714290421378959_n.jpg](attachments/518339012_10161034456021688_5197714290421378959_n.jpg)
 
 Looks yummy. Even the kid is entranced!
@@ -230,7 +232,7 @@ Oh look. The red [umbrella](https://www.youtube.com/watch?v=CvBfHwUxHIk). Suppos
 I seriously doubt anyone will keep an umbrella forever.
 # Tea ceremony
 
-The most important tradition. Time to meet the [family](https://www.youtube.com/shorts/pq8BhW4uR9k). 
+The most important tradition. Time to meet the [family](https://www.youtube.com/shorts/dZFiNOOCowc). 
 
 ![attachments/518360499_10161034456066688_4865418248517562948_n.jpg](attachments/518360499_10161034456066688_4865418248517562948_n.jpg)
 
