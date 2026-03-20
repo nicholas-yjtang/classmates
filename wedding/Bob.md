@@ -349,11 +349,11 @@ The first course.
 Don't recall what it is but if I have to guess it must be typical coldcuts with jellyfish somewhere in there. Mayo prawn was popular back then. Sliced pork. Zoom and enhance!
 ## Cake cutting and champagne
 
-Depending on where you are from, cake cutting and champagne toasting is supposed to **symbolise** the couple's first join task
+Depending on where you are from, cake cutting and champagne toasting is supposed to **symbolise** the couple's first joint task
 
-Remember. It's to **symbolise**
+Remember. It's **symbolic**
 
-Being more pragmatic, it's probably applying for a HDB
+If we're being more pragmatic, it's probably applying for a HDB
 
 ![attachments/518288408_10161034500251688_7647928924850479977_n.jpg](attachments/518288408_10161034500251688_7647928924850479977_n.jpg)
 
