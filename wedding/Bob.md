@@ -1,6 +1,6 @@
 Wanted to do this photoblog many many light years ago, but unfortunately for whatever reasons (laziness actually), it didn't happen
 
-You know, one of the funniest things about wedding photos, is that nobody is interested to look at it **AFTER** the wedding.
+You know, one of the funniest things about wedding photos, is that **nobody** is interested to look at it **AFTER** the wedding.
 
 I once went to one of my ex-colleagues home and she was soooo excited to show me her wedding photos. I had to sit through it, nodding my head at every picture without nodding off to sleep!
 
@@ -32,9 +32,11 @@ Wow. So young. And handsome
 
 ![attachments/517393444_10161034443791688_8911905700199608647_n.jpg](attachments/517393444_10161034443791688_8911905700199608647_n.jpg)
 
-The arrival of the car
+The arrival of the car. Not a Delorean
 
 # Gatecrash
+
+Also known as 闯门
 
 ![attachments/518289497_10161034445961688_8674524958574152581_n.jpg](attachments/518289497_10161034445961688_8674524958574152581_n.jpg)
 
@@ -90,7 +92,7 @@ Unveiling the bride
 
 # The departure
 
-As per tradition, time for Bob to bring the bride back *home*
+As per tradition 出门, time for Bob to bring the bride back *home*
 
 ![attachments/518141668_10161034447256688_4801827224156874047_n.jpg](attachments/518141668_10161034447256688_4801827224156874047_n.jpg)
 
@@ -132,6 +134,8 @@ Heading to rendezvous point
 
 # Arrival
 
+Sometimes known as 过门
+
 ![attachments/518209816_10161034456276688_1332609145176100755_n.jpg](attachments/518209816_10161034456276688_1332609145176100755_n.jpg)
 
 Arriving home
@@ -166,9 +170,9 @@ Don't quite get the hearts, but to each their own.  Looks difficult to clean
 The rest of the family can now appear
 ## Tang Yuan
 
-The couple is supposed to feed each other tang yuan at this point. 
+The couple is supposed to feed each other tang yuan (汤圆) at this point. 
 
-You know, tang yuan is supposed to sound like tuan yuan
+You know, tang yuan(汤圆) is supposed to sound like tuan yuan(团圆)
 
 I don't really think so, but ok boss!
 
@@ -183,6 +187,8 @@ Feeding time.
 As per the tradition, logan, lotus seed, hard boiled egg and glutinous rice ball. 
 
 Well I don't know what's actually inside, and obviously none of us can see it either, but lets pretend that is so. You can try to [zoom and enhance](https://www.youtube.com/watch?v=dswKyUUhKMI) it yourself
+
+There's some talk that the tradition is the groom prepares glutinous rice ball, the bride prepares hard boiled egg with mian sian. 
 
 ![attachments/518339012_10161034456021688_5197714290421378959_n.jpg](attachments/518339012_10161034456021688_5197714290421378959_n.jpg)
 
@@ -213,7 +219,7 @@ I don't remember what I ate that day, but I got hungry when i got to this point 
 
 ![attachments/518284599_10161034455656688_2755424631675325571_n.jpg](attachments/518284599_10161034455656688_2755424631675325571_n.jpg)
 
-Oh look. The red umbrella. Supposed to be kept. Forever.
+Oh look. The red [umbrella](https://www.youtube.com/watch?v=CvBfHwUxHIk). Supposed to be kept. Forever.
 
 I seriously doubt anyone will keep an umbrella forever.
 
@@ -329,9 +335,14 @@ Anyway here goes the last part of the photoblog!
 
 The first course. 
 
-Don't recall what it is but if I have to guess it must be typical coldcuts with jellyfish somewhere in there. Zoom and enhance!
-
+Don't recall what it is but if I have to guess it must be typical coldcuts with jellyfish somewhere in there. Mayo prawn was popular back then. Sliced pork. Zoom and enhance!
 ## Cake cutting and champagne
+
+Depending on where you are from, cake cutting and champagne toasting is supposed to **symbolise** the couple's first join task
+
+Remember. It's to **symbolise**
+
+Being more pragmatic, it's probably applying for a HDB
 
 ![attachments/518288408_10161034500251688_7647928924850479977_n.jpg](attachments/518288408_10161034500251688_7647928924850479977_n.jpg)
 
@@ -343,12 +354,20 @@ Cue the applause!
 
 Popping the [champagne](https://www.youtube.com/watch?v=tI-5uv4wryI)! 
 
+No waiters were hurt during this exercise
+
 ![attachments/518314188_10161034500151688_3232725924558473642_n.jpg](attachments/518314188_10161034500151688_3232725924558473642_n.jpg)
 
 Oh more dry ice/mysterious mist. 
 
 Wonder if the [champagne](https://abeautifulmess.com/how-to-build-a-champagne-tower/) gets wasted on the bottom glasses
 ## Thanks
+
+Did you say thank you?
+
+Time to thank the lovely guests that showed up. 
+
+Personally I always zone out here. Pretty sure I did!
 
 ![attachments/518334561_10161034500426688_1963412233489296309_n.jpg](attachments/518334561_10161034500426688_1963412233489296309_n.jpg)
 
@@ -358,9 +377,13 @@ Wonder if the [champagne](https://abeautifulmess.com/how-to-build-a-champagne-to
 
 A more serious thank you speech. 
 
-Looks like [Thomas](https://thomasmotorized.fandom.com/wiki/Thomas) is here too
+Looks like [Thomas](https://thomasmotorized.fandom.com/wiki/Thomas) is here too.
 
 ## Final hurrah
+
+Time to go around the tables and greet the guests. 
+
+With alcohol of course!
 
 ![attachments/518323880_10161034500326688_6789714882720179859_n.jpg](attachments/518323880_10161034500326688_6789714882720179859_n.jpg)
 
