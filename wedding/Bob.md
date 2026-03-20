@@ -359,7 +359,7 @@ If we're being more pragmatic, it's probably applying for a HDB
 
 Bob needed some encouragement to cut the cake!
 
-Cue the applause!
+Cue the [applause](https://www.youtube.com/shorts/r_Me-QpQTXs)!
 
 ![attachments/518408196_10161034500576688_7224298439560074168_n.jpg](attachments/518408196_10161034500576688_7224298439560074168_n.jpg)
 
@@ -369,7 +369,7 @@ No waiters were hurt during this exercise
 
 ![attachments/518314188_10161034500151688_3232725924558473642_n.jpg](attachments/518314188_10161034500151688_3232725924558473642_n.jpg)
 
-Oh more dry ice/mysterious [mist](https://www.youtube.com/watch?v=-7Syolg4zG4). 
+Oh more dry ice/mysterious mist 
 
 Wonder if the champagne gets wasted on the bottom glasses
 ## Thanks
