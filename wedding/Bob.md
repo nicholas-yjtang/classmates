@@ -80,7 +80,7 @@ Probably the wrong process but can't change the past now
 
 ![attachments/518078729_10161034445921688_5454187659874011582_n.jpg](attachments/518078729_10161034445921688_5454187659874011582_n.jpg)
 
-[*Kneel before me*](https://www.youtube.com/watch?v=Y3gJGuQQPnw)
+[*Kneel before me*](https://www.youtube.com/shorts/TC5O-Mytsjo)
 
 ![attachments/518271389_10161034445816688_6550124597922878389_n.jpg](attachments/518271389_10161034445816688_6550124597922878389_n.jpg)
 
@@ -104,7 +104,7 @@ I suppose the "house" was room 1406.
 
 As per tradition, the red umbrella is supposed to ward away negative elements. I wonder if it can ward away negative people too
 
-Negative elements [begone](https://www.youtube.com/watch?v=nqAxRJhUT3k)!
+Negative elements [begone](https://www.youtube.com/shorts/trR1hVurBPw)!
 
 ![attachments/517657646_10161034447191688_5196589127395183904_n.jpg](attachments/517657646_10161034447191688_5196589127395183904_n.jpg)
 
@@ -124,7 +124,7 @@ Almost there!
 
 Groom having to shove the bride's tresses. 
 
-Future CEO showing off his super power, the eye power
+Future CEO showing off his super power, the eye [power](https://static0.srcdn.com/wordpress/wp-content/uploads/2022/09/cyclops-powers-blow-apart-a-sentinel-x-men.jpg?q=50&fit=crop&w=825&dpr=1.5)
 
 ![attachments/517770047_10161034452021688_3586211177228722358_n.jpg](attachments/517770047_10161034452021688_3586211177228722358_n.jpg)
 
@@ -230,7 +230,7 @@ Oh look. The red [umbrella](https://www.youtube.com/watch?v=CvBfHwUxHIk). Suppos
 I seriously doubt anyone will keep an umbrella forever.
 # Tea ceremony
 
-The most important tradition. Time to meet the [family](https://www.youtube.com/watch?v=jYnRBX2Trtk). 
+The most important tradition. Time to meet the [family](https://www.youtube.com/shorts/pq8BhW4uR9k). 
 
 ![attachments/518360499_10161034456066688_4865418248517562948_n.jpg](attachments/518360499_10161034456066688_4865418248517562948_n.jpg)
 
@@ -287,7 +287,7 @@ Also known as **"Let's buy a HDB flat together"**
 
 ![attachments/518331886_10161034500201688_7118291095400240308_n.jpg](attachments/518331886_10161034500201688_7118291095400240308_n.jpg)
 
-The [paper chase](https://www.youtube.com/watch?v=pS1jzSlfN9g)
+The [paper chase](https://www.visakanv.com/sg/the-great-paper-chase/)
 
 ![attachments/518298090_10161034500271688_2597738962462891708_n.jpg](attachments/518298090_10161034500271688_2597738962462891708_n.jpg)
 
@@ -365,7 +365,7 @@ No waiters were hurt during this exercise
 
 Oh more dry ice/mysterious mist. 
 
-Wonder if the [champagne](https://abeautifulmess.com/how-to-build-a-champagne-tower/) gets wasted on the bottom glasses
+Wonder if the [champagne](https://www.youtube.com/shorts/8x2wguBmGgA) gets wasted on the bottom glasses
 ## Thanks
 
 Did you say thank you?
@@ -382,7 +382,7 @@ Personally I always zone out here. Pretty sure I did!
 
 A more serious thank you speech. 
 
-Looks like [Thomas](https://thomasmotorized.fandom.com/wiki/Thomas) is here too.
+Looks like [Thomas](https://www.youtube.com/@thomasandfriends) is here too.
 
 ## Final hurrah
 
@@ -406,8 +406,7 @@ Look at that [passion](https://knowyourmeme.com/sensitive/memes/trying-to-hold-a
 
 ![attachments/517989693_10161034500386688_5429959026170913364_n.jpg](attachments/517989693_10161034500386688_5429959026170913364_n.jpg)
 
-Well time to say goodbye!
-
+Well time to say [goodbye](https://www.youtube.com/watch?v=Qy9_lfjQopU)!
 
 
 
