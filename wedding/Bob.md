@@ -62,7 +62,7 @@ Oh looks almost like the one that was offered! Nappy Red Packet, what a name
 
 ![attachments/518263315_10161034445876688_751882533140368895_n.jpg](attachments/518263315_10161034445876688_751882533140368895_n.jpg)
 
-He had to yell embarrassing things in order to be let in. For a person who is unable to articulate his emotions, it's pretty gruelling
+He had to yell embarrassing things in order to be let in. For a person who is unable to articulate his emotions, it's pretty [gruelling](https://www.youtube.com/shorts/XIjmZ29vqcc)
 
 At least there were no **"fun"** games
 
