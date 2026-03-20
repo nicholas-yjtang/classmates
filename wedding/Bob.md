@@ -64,7 +64,7 @@ Oh looks almost like the one that was offered! Nappy Red Packet, what a name
 
 He had to yell embarrassing things in order to be let in. For a person who is unable to articulate his emotions, it's pretty [gruelling](https://www.youtube.com/shorts/XIjmZ29vqcc)
 
-At least there were no **"fun"** games
+At least there were no [**"fun"** games](https://singaporebrides.com/articles/2024/02/wedding-gatecrash-games/)
 
 ![Pasted%20image%2020260320034433.png](attachments/Pasted%20image%2020260320034433.png)
 
@@ -152,7 +152,7 @@ What a precarious journey
 
 ![attachments/518001692_10161034456246688_1825142211914271196_n.jpg](attachments/518001692_10161034456246688_1825142211914271196_n.jpg)
 
-Finally home, the humble abode of the HDB flat. 
+Finally home, the humble abode of the HDB flat.
 ## The newly weds room
 
 According to the tradition, they need to enter this room first before the rest of the family can appear. 
@@ -204,7 +204,9 @@ Returning the favour
 
 Stop and take instruction from professional photographer for a better pose
 
-Did you notice how they are posing next to their pre-wedding photoshots?
+Did you notice how they are posing next to their pre-wedding photoshots? 
+
+So meta
 
 [Photoception](https://en.wikipedia.org/wiki/Inception)!
 
@@ -257,6 +259,8 @@ Gifts. Like receiving a Edusave award from your MP
 ![attachments/518322214_10161034456116688_2644256017808796476_n.jpg](attachments/518322214_10161034456116688_2644256017808796476_n.jpg)
 
 More gifts. Another Edusave award
+
+[Traditionally](https://www.nlb.gov.sg/main/article-detail?cmsuuid=78aea38b-3bad-4262-8906-89c98f85ed28) it's the dragon phoenix bangles (龙凤镯) or the si dian jin (四点金) depending on your dialetc group
 
 ![attachments/518265485_10161034456166688_3810055789221432991_n.jpg](attachments/518265485_10161034456166688_3810055789221432991_n.jpg)
 
