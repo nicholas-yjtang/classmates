@@ -227,7 +227,7 @@ I don't remember what I ate that day, but I got hungry when i got to this point 
 
 ![attachments/518284599_10161034455656688_2755424631675325571_n.jpg](attachments/518284599_10161034455656688_2755424631675325571_n.jpg)
 
-Oh look. The red [umbrella](https://www.youtube.com/watch?v=CvBfHwUxHIk). Supposed to be kept. Forever.
+Oh look. The red [umbrella](https://www.youtube.com/shorts/9LTAcmBQA5o). Supposed to be kept. Forever.
 
 I seriously doubt anyone will keep an umbrella forever.
 # Tea ceremony
