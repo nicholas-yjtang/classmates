@@ -272,7 +272,7 @@ The kid also wants in on the action
 
 ![attachments/518363648_10161034458316688_437224075187128452_n.jpg](attachments/518363648_10161034458316688_437224075187128452_n.jpg)
 
-Waiter, I need [more](https://www.youtube.com/watch?v=FYCu9-r6B8E&t=84s) tea please
+Waiter, I need [more](https://www.youtube.com/shorts/T-Gf8a2jSuI) tea please
 
 ![attachments/518325520_10161034458341688_3983299398846053722_n.jpg](attachments/518325520_10161034458341688_3983299398846053722_n.jpg)
 
