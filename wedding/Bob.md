@@ -365,7 +365,7 @@ No waiters were hurt during this exercise
 
 ![attachments/518314188_10161034500151688_3232725924558473642_n.jpg](attachments/518314188_10161034500151688_3232725924558473642_n.jpg)
 
-Oh more dry ice/mysterious [mist](https://www.youtube.com/shorts/QhDz_B0ULC0). 
+Oh more dry ice/mysterious [mist](https://www.youtube.com/watch?v=-7Syolg4zG4). 
 
 Wonder if the champagne gets wasted on the bottom glasses
 ## Thanks
