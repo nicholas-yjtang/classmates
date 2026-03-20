@@ -202,9 +202,15 @@ Returning the favour
 
 Stop and take instruction from professional photographer for a better pose
 
+Did you notice how they are posing next to their pre-wedding photoshots?
+
+[Photoception](https://en.wikipedia.org/wiki/Inception)!
+
 ![Pasted%20image%2020260320050851.png](attachments/Pasted%20image%2020260320050851.png)
 
-Guess the time was not as auspicious
+Guess the time was not as auspicious. 
+
+I'm shocked 2 hours 22 mins have passed
 # Break time!
 
 ![attachments/517579147_10161034456151688_5085174200470334805_n.jpg](attachments/517579147_10161034456151688_5085174200470334805_n.jpg)
@@ -222,7 +228,6 @@ I don't remember what I ate that day, but I got hungry when i got to this point 
 Oh look. The red [umbrella](https://www.youtube.com/watch?v=CvBfHwUxHIk). Supposed to be kept. Forever.
 
 I seriously doubt anyone will keep an umbrella forever.
-
 # Tea ceremony
 
 The most important tradition. Time to meet the [family](https://www.youtube.com/watch?v=jYnRBX2Trtk). 
