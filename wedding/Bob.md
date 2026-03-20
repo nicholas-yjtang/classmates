@@ -52,7 +52,7 @@ Offerings to the bride
 
 Was rather curious about the process now looking back. 
 
-Couple of [places](https://www.thechineseweddingshop.com.sg/media-gallery/4_fetching-the-bride.html) [explaining](https://singaporebrides.com/articles/2020/10/chinese-wedding-customs-traditions/)the [tradition](https://thesmartlocal.com/read/chinese-wedding-customs-singapore/)
+Couple of [places](https://www.thechineseweddingshop.com.sg/media-gallery/4_fetching-the-bride.html) [explaining](https://singaporebrides.com/articles/2020/10/chinese-wedding-customs-traditions/) the [tradition](https://thesmartlocal.com/read/chinese-wedding-customs-singapore/)
 
 ![Pasted%20image%2020260320041411.png](attachments/Pasted%20image%2020260320041411.png)
 
@@ -78,7 +78,7 @@ Probably the wrong process but can't change the past now
 
 ![attachments/518078729_10161034445921688_5454187659874011582_n.jpg](attachments/518078729_10161034445921688_5454187659874011582_n.jpg)
 
-[*Kneel before me](https://www.youtube.com/watch?v=Y3gJGuQQPnw)*
+[*Kneel before me*](https://www.youtube.com/watch?v=Y3gJGuQQPnw)
 
 ![attachments/518271389_10161034445816688_6550124597922878389_n.jpg](attachments/518271389_10161034445816688_6550124597922878389_n.jpg)
 
@@ -182,7 +182,7 @@ Feeding time.
 
 As per the tradition, logan, lotus seed, hard boiled egg and glutinous rice ball. 
 
-Well I don't know what's actually inside, and obviously none of us can see it either, but lets pretend that is so. You can try to [zoom and enhance](https://www.youtube.com/watch?v=dswKyUUhKMI)it yourself
+Well I don't know what's actually inside, and obviously none of us can see it either, but lets pretend that is so. You can try to [zoom and enhance](https://www.youtube.com/watch?v=dswKyUUhKMI) it yourself
 
 ![attachments/518339012_10161034456021688_5197714290421378959_n.jpg](attachments/518339012_10161034456021688_5197714290421378959_n.jpg)
 
