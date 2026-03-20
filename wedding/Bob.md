@@ -6,7 +6,7 @@ I once went to one of my ex-colleagues home and she was soooo excited to show me
 
 I thought since there is renaissance of [nostalgia](https://en.wikipedia.org/wiki/Stranger_Things), why not show those badly taken photos I had of Bob's wedding and just say it has that **glow** of nostalgia
 
-So let's rewind our clocks back to 25032010 0500 in our [Deloreans](https://en.wikipedia.org/wiki/Back_to_the_Future) and head [back in time](https://www.youtube.com/watch?v=xNWYvHHU1U8)
+So let's rewind our clocks back to 25032010 0500 in our [Deloreans](https://en.wikipedia.org/wiki/Back_to_the_Future) and head [back in time](https://www.youtube.com/watch?v=QyrV3UbSdDQ)
 
 # The morning
 
